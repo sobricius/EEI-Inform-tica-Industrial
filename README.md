@@ -1,1 +1,1 @@
-# EEI-Inform-tica-Industrial
+# EEI-Informática-Industrial
